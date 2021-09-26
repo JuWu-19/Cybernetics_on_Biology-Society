@@ -1,1 +1,1 @@
-# Cybernetics_on_Biology-Society
+## Some excerpts and philosophical thinking collections about cybernetics impacts on biology and society
